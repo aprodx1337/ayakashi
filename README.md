@@ -1,0 +1,2 @@
+# ayakashi
+ayakashi cracked version
